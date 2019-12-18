@@ -1,0 +1,25 @@
+---
+author: Nhiều tác giả
+categories:
+- Lịch Sử - Chính Trị
+description: Bí Mật Cuộc Đời Và Gia Thế Tưởng Giới Thạch
+download_links:
+- info: epub
+  url: https://sachvui.com/download/epub/2750
+- info: mobi
+  url: https://sachvui.com/download/mobi/2751
+image: https://sachvui.com/cover/2016/bi-mat-cuoc-doi-va-gia-the-tuong-gioi-thach.jpg
+layout: post
+permalink: /bi-mat-cuoc-doi-va-gia-the-tuong-gioi-thach.html
+tags:
+- tải sách miễn phí
+- tải sách nhanh
+- tải ebooks miễn phí
+- pdf miễn phí
+- Bí Mật Cuộc Đời Và Gia Thế Tưởng Giới Thạch ebook
+- Bí Mật Cuộc Đời Và Gia Thế Tưởng Giới Thạch pdf
+thumbnail_url: https://sachvui.com/cover/2016/bi-mat-cuoc-doi-va-gia-the-tuong-gioi-thach.jpg
+title: Bí Mật Cuộc Đời Và Gia Thế Tưởng Giới Thạch
+---
+
+ <div class="item-desc text-justify"> <p><strong>Phần thứ nhất - Bí mật về gia thế</strong></p><p>1. Tin đồn Tưởng Giới Thạch là Trịnh Tam Phát Tử tại sao lại sôi nổi rầm rộ khắp nhân gian?</p><p>2. Tại sao Tưởng Giới Thạch lại biến thành Trịnh Tam Phát Tử và người con của sư trụ trì chùa Tuyết Đậu?</p><p>3. Tại sao mẹ Tưởng không chôn cùng cha Tưởng?</p><p>4. Những chuyện phiếm về tên và tự của Tưởng Giới Thạch</p><p>5. Tưởng Giới Thạch đã biên soạn “Tông phổ họ Tưởng” như thế nào ?</p><p>6. Vì sao gia đình Tưởng Giới Thạch có nhiều người thành tâm tín ngỡng đạo Phật?</p><p>7. Một người cha khác của Tưởng Kinh Quốc</p><p>8. người con gái của Tưởng Giới Thạch mà ít ai biết đến.</p><p><em><strong>Phần thứ hai - Bí mật về hôn nhân và luyến ái</strong></em></p><p>1. Tưởng Giới Thạch với cô em họ ở ven bờ suối Viêm</p><p>2. Ân ân oán oán của Tưởng Giới Thạch với Nguyên phối phu nhân.</p><p>3. “Duyên anh hùng mỹ nữ” của Tưởng Giới Thạch.</p><p>4. “Như phu nhân” mà Tưởng Giới Thạch suốt đời quyến luyến.</p><p>5. Cuộc hôn nhân Tưởng Tống với tình yêu cùng tồn tại.</p><p><strong>Phần thứ ba - Bí mật về sự chìm nổi</strong></p><p>1. Tưởng Giới Thạch làm thế nào để giành được sự tín nhiệm của Tôn Trung Sơn.</p><p>2.”Ba lỡi dao” mà Tưởng Giới Thạch kinh doanh ở trường quân đội Hoàng Phố.</p><p>3. Tưởng Giới Thạch làm thế nào để nhậm chức Tổng tư lệnh quân Bắc phạt.</p><p>4. Bí quyết giành thắng lợi trong “Đại thắng Trung Nguyên” của Tưởng Giới Thạch.</p><p>5. Tại sao Tưởng Giới Thạch phải giăng cài “lới đen”.</p><p>6. Lần đầu tiên Tưởng Giới Thạch buộc phải từ chức và phục chức.</p><p>7. Lần thứ hai Tưởng Giới Thạch buộc phải từ chức và phục chức</p><p>8. Lần thứ ba Tưởng Giới Thạch buộc phải từ chức và phục chức.</p><p><strong>Phần thứ tư - Bí mật về dùng binh thất bại</strong></p><p>1. Tại sao Tưởng Giới Thạch không cứu nổi mạng của Trương Linh Phủ ?</p><p>2. Kết quả khổ sở trong ba lần chạy về Thẩm Dương của Tưởng Giới Thạch</p><p>3. Tại sao Tưởng Giới Thạch do dự không quyết đối với việc giữ hay rút khỏi Từ Châu ?</p><p>4. Tưởng Giới Thạch để mất Bình Tân như thế nào?</p><p>5. Tưởng Giới Thạch bố trí xây dựng phòng tuyến Trường Giang thế nào ?</p><p>6. Vì sao Tưởng Giới Thạch bị thất bại ở Trung Nam?</p><p><strong>Phần thứ năm - Bí mật về việc chạy ra Đài Loan</strong></p><p>1. Tưởng Giới Thạch đã rời Khê Khẩu như thế nào?</p><p>2. Trên đường chạy trốn ra Đài Loan tại sao Tưởng Giới Thạch đã ứ đọng lại ở Bành Hồ.</p><p>3. Tưởng Giới Thạch đã trốn khỏi Đại lục như thế nào ?</p><p>4.Trước và sau việc Tưởng Giới Thạch lấy cắp vàng chuyển ra Đài Loan.</p><p><strong>Phần thứ sáu - Bí mật về sự phản công Đại Lục.</strong></p><p>1. Tưởng Giới Thạch đã đặt thời gian biểu cho sự “phản công phục quốc” như thế nào ?</p><p>2. Tưởng Giới Thạch tuần sát Kim Môn với phong trào “Mẹ quên ở Cử” của quân đội Quốc dân đảng.</p><p>3. Cao trào quấy rối lần thứ nhất phản công đại lục của Tưởng Giới Thạch.</p><p>4. Cao trào quấy rối lần thứ hai phản công đại lục của Tưởng Giới Thạch.</p><p><strong>Phần thứ bảy - Bí mật về đại nạn mà không chết</strong></p><p>1. Trò “nấp trong vại” của Tưởng Giới Thạch</p><p>2. Tưởng Giới Thạch với “Sự kiện lầu Đông Pha”</p><p>3. Tại sao Tưởng Giới Thạch cha tự sát ?</p><p>4. Tưởng Giới Thạch nhìn thấy Hồng quân kéo tới Qúy Dương</p><p>5. Tưởng Giới Thạch chạy trốn về “Tróc Tưởng Đình”</p><p>6. Tưởng Giới Thạch trên đường thăm ấn Độ trở về</p><p>7. Tưởng Giới Thạch bị bắt sống ở trên đảo Phục Hưng</p><p><strong>Phần thứ tám - Bí mật về tính cách</strong></p><p>1. “Thụy Nguyên vô lại” buông thả phóng túng.</p><p>2. Quật cường bất khuất, cố chấp và độc đoán chuyên quyền</p><p>3. Tính chất bẩm sinh của nhà buôn: tích trữ hàng qúy</p><p>4. Trái tim tự tư với trái tim yêu nước.</p><p>5. Uy nghiêm cá nhân với tôn nghiêm “lãnh tụ”</p><p>6. Tác phong chính khách một lời lật lọng</p><p>7. Bụng dạ hẹp hòi, nhỏ nhen ti tiện và giận dữ tất sẽ trả thù.</p><p>8. Quái thai của nền văn hóa phong kiến và tư Tưởng phát xít .</p><p><strong>Phần thứ chín - Bí mật về cái chết</strong></p><p>1. Trước và sau khi Tưởng Giới Thạch quá cố.</p><p>2. Di chúc của Tưởng Giới Thạch viết những gì </p><p>3. Trong quan tài của Tưởng Giới Thạch đặt những cuốn sách nào ?</p><p>4. Tại sao Tưởng Giới Thạch không an táng xuống đất mà lại quàn tạm ở Từ Hồ?</p><p>5. Gia đình họ Tưởng trước và sau khi Tưởng Giới Thạch qua đời.</p> </div>
